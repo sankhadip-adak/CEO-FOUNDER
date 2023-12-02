@@ -1,1 +1,2 @@
-https://656b4f4f7bad53577cc6be10--magnificent-tarsier-3df0bc.netlif
+# CEO & FOUNDER
+https://656b6ae25b0083633a679d2d--soft-travesseiro-a6650a.netlify.app/
